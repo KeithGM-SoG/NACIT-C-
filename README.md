@@ -1,2 +1,2 @@
 # NACIT-C-
-All the best in you study
+All the best in your study
